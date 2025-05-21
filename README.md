@@ -1,4 +1,4 @@
-# SportsBet Manager Privacy Policy
+# MBO Privacy Policy
 
 **Last Updated: May 21, 2025**
 
